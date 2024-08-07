@@ -9,4 +9,4 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @alurastartestudante
-![](https://images.app.goo.gl/7gdaHR8c1BJwR6Lk6)
+![](https://images.app.goo.gl/zoBMMuFNbd29phNx5)
